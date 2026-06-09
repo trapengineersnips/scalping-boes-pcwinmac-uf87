@@ -1,4 +1,4 @@
-# 
+# Instantané scalping bot for derivatives flux de travail pour Mac OS | Natif scalping bot for derivatives flux de travail pour PC Windows. Avec suivi de tendance et balayage d'arbitrage — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
